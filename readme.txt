@@ -1,5 +1,6 @@
 
 Je m'appelle Axelle CODJO
 Je suis en L2 IRT
-J'aime danser
-utilisation de la commande pull
+J'aime danser 
+je ne sais pas 
+
